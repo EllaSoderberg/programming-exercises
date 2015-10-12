@@ -1,0 +1,1 @@
+Okej så nu kan jag börja skriva 
